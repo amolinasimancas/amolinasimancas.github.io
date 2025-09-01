@@ -37,11 +37,11 @@ Rosario, Santa Fé (2000), Argentina
 
 ---
 
-### **Proccess Engineer - Electric Arc Furnace & Ladle Furnace**
+### **Process Engineer - Electric Arc Furnace & Ladle Furnace**
 
 *Apr 2024 – Present | Rosario, Argentina*
 
-### **Proccess Engineer - Continuous Casting Machine & Refractories**
+### **Process Engineer - Continuous Casting Machine & Refractories**
 
 *Jan 2018 – Mar 2024 | Rosario, Argentina*
 
